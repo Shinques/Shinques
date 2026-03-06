@@ -1,5 +1,5 @@
 # 💫 Shinques:
-Shinques<br> CEO of ShinMC Network<br>Started on 2020.
+Shinques<br> Work on Violet<br>Started on 2020.
 
 
 ## 🌐 Sosyal Medyam:
